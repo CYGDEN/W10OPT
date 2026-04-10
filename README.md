@@ -1,1 +1,1 @@
-`читайте с моего профиля как оптимизировать до максимума кс2` https://steamcommunity.com/id/CYGDEN/
+`CS2 OPTIMIZATIONS CHECK MY PROFILE COMMENTS > ` HTTPS://STEAMCOMMUNITY.COM/ID/CYGDEN/
